@@ -5,5 +5,5 @@
 <h5>
 pegasus　18　npdsys
 
-<br><a href="https://ponyexpress.atabook.org/" target="_blank">新book​</a> ^.^
+<br><a href="https://clu.atabook.org/" target="_blank">新book​</a> ^.^
 </h5>
