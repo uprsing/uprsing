@@ -2,9 +2,8 @@
   
 ![](https://komarev.com/ghpvc/?username=uprsing&color=555555&style=plastic&label=visits)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkzc4linzxbsxayhxubhgmct54&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=6cc0f4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <h5>
-pegasus　18　npdsys
+pegasus　18⠀⠀system
 
 <br>-> <a href="https://tron.atabook.org/" target="_blank">新book​</a> <-
 </h5>
