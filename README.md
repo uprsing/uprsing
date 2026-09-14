@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=uprsing&color=555555&style=square&label=++the_antitron++†++)
 <h6>
-pegasus⠀⠀or⠀ tron⠀⠀　beck⠀gachikoi<br>
+pegasus⠀⠀or⠀ tess⠀⠀　beck's boyfriend<br>
 ᨳ⠀⠀pls⠀⠀check⠀⠀out⠀⠀our⠀⠀main⠀⠀𓆩 𓆪<br>
-☆⌒(ゝ。<)⠀⠀⠀8teen⠀⠀didsys⠀⠀⠀.⋆♱
+☆⌒(ゝ。<)⠀⠀⠀9teen⠀⠀didsys⠀⠀⠀.⋆♱
 </h6>
 <h6>
 ⠀⠀⣀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⢀⡀⠀<br>
